@@ -1,16 +1,17 @@
-## Hi there 👋
+![](https://i.makeagif.com/media/11-18-2023/QL8zho.gif)
+###### ʜᴏʟᴏʟɪᴠᴇ, ᴘʀᴏᴊᴇᴄᴛ sᴇᴋᴀɪ (ʟᴇᴏ/ɴᴇᴇᴅ), ᴘᴀᴛʜ ᴛᴏ ɴᴏᴡʜᴇʀᴇ, ʀᴇᴠᴇʀsᴇ:1999, ʙᴀɴᴅᴏʀɪ, ᴀɴᴅ ɢᴜᴀʀᴅɪᴀɴ ᴛᴀʟᴇs ғᴀɴ?!
 
-<!--
-**inasanaaty/inasanaaty** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+>> ᴅɴɪ ʟɪsᴛs ʀ ᴏᴠᴇʀʀᴀᴛᴇᴅ ʙᴜᴛ ᴊᴜsᴛ ᴅᴏɴ'ᴛ ʙᴇ ʀᴜᴅᴇ ᴏʀ ᴅɪsɢᴜsᴛɪɴɢ ᴛʜᴇɴ ɪᴛ's ᴀʟʟ ғɪɴᴇ, ɪ'ᴍ ᴘʀᴇᴛᴛʏ ɴɪᴄᴇ ᴀʙᴛ ɪᴛ
+>
+> ᴘᴏɴʏᴛᴏᴡɴ's ɴᴜᴍʙᴇʀ ᴏɴᴇ ʏᴀᴘᴘᴇʀ! ᴏғᴛᴇɴ sᴇᴇɴ sɪᴛᴛɪɴɢ ᴡɪᴛʜ ᴍʏ ʜᴏʟᴏ ᴍᴏᴏᴛs
+>
+> ʀᴀʀᴇᴘᴀɪʀs ɴᴀᴛᴜʀᴀʟ ᴇɴᴊᴏʏᴇʀ
+>
+> ɪɴ ᴀᴅᴅɪᴛɪᴏɴ ᴛᴏ ᴍʏ ᴅɴɪ, ᴍ/ᴡ (sᴛʀᴀɪɢʜᴛ sʜɪᴘs) ᴀɴᴛɪs ᴀɴᴅ ᴘʀᴏsʜɪᴘᴘᴇʀs. ʏ'ᴀʟʟ ᴄᴀɴɴᴏᴛ ʙᴇ sʀs ᴀʙᴏᴜᴛ ᴛʜɪs ɪ sᴡᴇᴀʀ.
+>
+> ᴍᴏsᴛʟʏ ᴀʙᴏᴠᴇ ᴏʀ ɪɴ ʀʏᴛʜᴍ ɢᴀᴍᴇ ᴀʀᴇᴀ. sᴏᴍᴇᴛɪᴍᴇs ғᴏᴜɴᴅ ʙᴇʜɪɴᴅ ʙᴀᴋᴇʀʏ ᴏʀ sᴏᴍᴇᴡʜᴇʀᴇ ᴀʀᴏᴜɴᴅ ᴍᴀʀᴋᴇᴛ.
+>
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQQFLPZMBEhoW6_r-56Iw-e5vokwAt4uG5B5b_UfmhMslMD-Yfa2AiCPsA&s=10)
+<p align="center">
+ᴘʀᴏᴍɪsᴇ ᴡɪʟʟ ғᴏʀᴇᴠᴇʀ ʙᴇ ғɪᴠᴇ. ᴄᴏᴜɴᴄɪʟ ᴡɪʟʟ ғᴏʀᴇᴠᴇʀ ʙᴇ ғɪᴠᴇ.
+</p>

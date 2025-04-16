@@ -1,5 +1,15 @@
-![](https://media1.tenor.com/m/1eXOrOM8zc0AAAAd/mumei-nanashi-mumei.gif)
-###### I love CRK and Hololive
+# 🪶 WHAT WAS ONCE US 🌿
+![](https://media1.tenor.com/m/0zjRdcnUdekAAAAd/mumei-nanashi-mumei.gif)
+-
+<hr/>
 
+> "I really wish we could've spent more time together. But then again, all good things must come to an end."
+> 
+>> I am Bomii / Mei, once known as Lan
 
-![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQQFLPZMBEhoW6_r-56Iw-e5vokwAt4uG5B5b_UfmhMslMD-Yfa2AiCPsA&s=10)
+> you often see me as holomems (mainly mumei)
+> I'm a bit socially awkward but feel free to talk to me anytime!!
+> c + h is okay but be mindful if I'm with my friends
+> I love faumei
+>
+![](https://files.catbox.moe/kd7ptd.webp)

@@ -10,6 +10,7 @@
 > you often see me as holomems (mainly mumei)
 > I'm a bit socially awkward but feel free to talk to me anytime!!
 > c + h is okay but be mindful if I'm with my friends
+> 
 > I love faumei
 >
 ![](https://files.catbox.moe/kd7ptd.webp)

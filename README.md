@@ -1,6 +1,3 @@
-### "Est-ce que tu m'aimes? J'sais pas si je t'aime."
-<hr/>
-
 # 🪶 NM + CF 🌿
 ![](https://media1.tenor.com/m/0zjRdcnUdekAAAAd/mumei-nanashi-mumei.gif)
 -

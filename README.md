@@ -1,5 +1,5 @@
-![](https://media1.tenor.com/m/OmGo8rrzCNsAAAAC/how-to-get-my-husband-on-my-side.gif)
-#### . ." Will you lend me your hand once more? "
+![](https://i.imgur.com/Zy9Lw8B.png)
+
 >> Bomii / Mei / Lan
 >>
 > sometimes inactive , sometimes chronically online

@@ -3,7 +3,7 @@
 ![image](https://files.catbox.moe/jnl3zr.jpeg)
 >>> . . .
 >>> 
->> hi, I make vtubers but I don't accept comissions/requests since I just do it for fun.
+>> hi, I make vtuber models but I don't accept comissions/requests since I just do it for fun.
 >> 
 > mostly found near rythm games/crk area and sometimes in the market or outside of library.
 >

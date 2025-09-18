@@ -19,3 +19,6 @@
 >>>
 ![image](https://files.catbox.moe/t7f7si.jpeg)
 <p align="center"><sup> if you think of interacting with ill intentions then please consider not interacting at all. I won't be replying nor acknowledge any of your words if it were just for some 'ragebaiting' (unless you're aleph) </sup></p>
+
+<p align="center">MY POOKIES <33 (wip)</p>
+<a href="url"><img src="https://files.catbox.moe/23ew4k.png" align="left" height="50" width="50" ></a> <a href="url"><img src="https://files.catbox.moe/5l7bfv.png" align="left" height="50" width="50" ></a> <a href="url"><img src="https://files.catbox.moe/h5r0yz.png" align="left" height="50" width="50" ></a> <a href="url"><img src="https://files.catbox.moe/0nry0r.png" align="left" height="50" width="50" ></a> <a href="url"><img src="https://files.catbox.moe/sg1cty.png" align="left" height="50" width="50" ></a>

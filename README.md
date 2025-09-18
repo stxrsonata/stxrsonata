@@ -18,3 +18,4 @@
 >>> . . .
 >>>
 ![image](https://files.catbox.moe/t7f7si.jpeg)
+<p align="center"><sup> if you think of interacting with ill intentions then please consider not interacting at all. I won't be replying nor acknowledge any of your words if it were just for some 'ragebaiting' (unless you're aleph) </sup></p>

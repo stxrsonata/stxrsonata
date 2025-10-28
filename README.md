@@ -18,9 +18,15 @@ sit / hide freely when I'm alone! ^^<br/>
 I tend like to experiment with colours<br/>
 also r1999 pls hmu <33<br/>
 multifandom but!! my mains are:<br/>
-vtubers (mainly v4m or holo) , ptn , alnst , r1999 , uma, crk
+vtubers (mainly v4m or holo) , ptn , alnst , r1999 , uma, crk<br/>
+   - music: - <br/>
+   Katseye , MSI , Hololive , MCR , cXCX , Kpop , Tyler the Creator
 </p>
 
 <p align="center">
    <img src="https://files.catbox.moe/jd3diy.png" />
+</p>
+
+<p align="center">
+alt account: @K4TS-EYE
 </p>

@@ -20,7 +20,8 @@ also r1999 pls hmu <33<br/>
 multifandom but!! my mains are:<br/>
 vtubers (mainly v4m or holo) , ptn , alnst , r1999 , uma, crk<br/>
    - music: - <br/>
-   Katseye , MSI , Hololive , MCR , cXCX , Kpop , Tyler the Creator
+   Katseye , MSI , Hololive , MCR , cXCX , Kpop ,<br/>
+   Tyler the Creator , Manu Chao , Pequeno Cidadao
 </p>
 
 <p align="center">

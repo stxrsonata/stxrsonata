@@ -1,4 +1,5 @@
-![](https://files.catbox.moe/sm9sbc.jpg)
+<p align="center">
+   <img src="https://files.catbox.moe/30pslx.jpg" />
 <p align="center"><br/>
    𝘽𝙊𝙈𝙄𝙄 / 𝙈𝙀𝙄 / 𝙇𝘼𝙉
 </p>
@@ -25,7 +26,7 @@ vtubers (mainly v4m or holo) , ptn , alnst , r1999 , uma, crk<br/>
 </p>
 
 <p align="center">
-   <img src="https://files.catbox.moe/jd3diy.png" />
+   <img src="https://files.catbox.moe/l8eddf.png" />
 </p>
 
 <p align="center">

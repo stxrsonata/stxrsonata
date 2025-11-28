@@ -3,5 +3,5 @@
 </p>
 
 <p align="center">
-links soon. . .
+STUPID ASS WIFI NOW MY RENTRY RESETED I HATE YOU CONVERGE KYSKYS. . .
 </p>

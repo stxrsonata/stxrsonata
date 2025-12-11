@@ -1,7 +1,7 @@
 <p align="center">
-   <img src="https://files.catbox.moe/l8eddf.png" />
+   <img src="https://file.garden/aTrUh_0tyznNb-cC/a2e266ea93a72b0bbefda2cf0e460cdb.jpg" />
 </p>
 
 <p align="center">
-STUPID ASS WIFI NOW MY RENTRY RESETED I HATE YOU CONVERGE KYSKYS. . .
+AWWWWWWWWW LOOK AT THEM I LOVE THEM SM KYAAAAA. . .
 </p>

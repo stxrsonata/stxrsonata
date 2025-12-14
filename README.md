@@ -3,5 +3,5 @@
 </p>
 
 <p align="center">
-I wish lesbians were real. . .
+im #1 kaomari truther ok. . .
 </p>

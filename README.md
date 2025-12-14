@@ -3,5 +3,5 @@
 </p>
 
 <p align="center">
-AWWWWWWWWW LOOK AT THEM I LOVE THEM SM KYAAAAA. . .
+I wish lesbians were real. . .
 </p>

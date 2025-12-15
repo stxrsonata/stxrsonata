@@ -5,3 +5,7 @@
 <p align="center">
 im #1 kaomari truther ok. . .
 </p>
+
+<p align="center">
+don't copy/inspo my skins pls!
+</p>
